@@ -1,7 +1,7 @@
 Privacy Policy for SoloPro - Master your projects
 Privacy Policy
 
-Last updated: December 02, 2024
+Last updated: March 23, 2025
 
 This Privacy Policy describes Our policies and procedures on the collection, use and disclosure of Your information when You use the Service and tells You about Your privacy rights and how the law protects You.
 
